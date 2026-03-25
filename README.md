@@ -116,7 +116,7 @@ I focus on creating solutions that are not just technically sound, but also impa
 ## 📫 Connect with Me  
 
 💻 **GitHub:** https://github.com/Vishnu-Shettihalli  
-🔗 **LinkedIn:** *(Add your LinkedIn URL here)*  
+🔗 **LinkedIn:** *www.linkedin.com/in/vishnu-shettihalli-h*  
 
 ---
 
